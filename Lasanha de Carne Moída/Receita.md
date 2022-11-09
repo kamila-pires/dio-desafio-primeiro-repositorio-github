@@ -49,7 +49,7 @@
 
 ###### *Link* *útil*: 
 
-###### Lasanha de carne moída](https://www.tudogostoso.com.br/receita/876-lasanha-de-carne-moida.html)
+###### [Lasanha de carne moída](https://www.tudogostoso.com.br/receita/876-lasanha-de-carne-moida.html)
 
 
 
