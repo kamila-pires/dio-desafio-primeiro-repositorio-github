@@ -1,2 +1,2 @@
-# dio-desafio-primeiro-repositorio-github
-Desafio do Primeiro Repositório no Git/GitHub
+# Esse é meu primeiro respositório sobre o Desafio de Git&GitHub da DIO. 🖤
+
